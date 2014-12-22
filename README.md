@@ -33,7 +33,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The second Tome of Homilees, of such matters as were promised, and intituled in the former part of H
+
 1. The Table of homilees ensuyng.
 
 1. ¶ An admonition to all Ministers ecclesiasticall.
